@@ -52,6 +52,6 @@ If you face or witness sexual harassment immediately take this following steps:
 
    &#9702; Know your rights and what your company is doing to resolve the situation.
 
-   * **Follow Up:**
+ * **Legal Action:**
 
-        &#9702; Ensure that the issue is addressed and that no retaliation occurs. Follow up with the appropriate parties to confirm actions taken.
+    &#9702; If the issue continues or isn’t resolved, you can explore legal options and register a complain.
